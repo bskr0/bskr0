@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @bskr0
+- 👀 I’m interested in digital design
+- 🌱 I’m currently learning web design
+- 😄 Pronouns: he/they
